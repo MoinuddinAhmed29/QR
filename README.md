@@ -1,1 +1,1 @@
-![QR](https://github.com/user-attachments/assets/48c780e8-c6bf-4792-8c40-c3400146606a)
+![QR](https://github.com/user-attachments/assets/47bd3891-d062-4238-8a64-87b7012615af)
